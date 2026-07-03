@@ -1,4 +1,4 @@
-# 
+# Premium uniswap trading bot extensiones for Mac OS | Élite uniswap trading bot extensiones for PC Windows. Featuring estrategia de reversión a la media and análisis de momento — optimized for maximum performance.
 
 
 
